@@ -1,1 +1,1 @@
-# projeto-2tri-introdu-o-gabriel-pasko-santos
+# projeto-2tri-introducao-gabriel-pasko-santos
